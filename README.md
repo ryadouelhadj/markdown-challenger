@@ -3,7 +3,7 @@
 
 ![Zozor](https://www.liveabout.com/thmb/Ffe8cUgXEMbuZt4z9ysyvqzbIAY=/1600x1200/filters:no_upscale():max_bytes(150000):strip_icc()/animalmemes14-5ae229b4ae9ab80037197fef.jpg)
 
-Vivre au jour le jour, demain c'est trop loin
+Just do it.... Later
 
 | Anniversaire  | Couleur préférée  |  Nourite favorite | Ananas sur pizza  |
 |---|---|---|---|
