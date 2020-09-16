@@ -9,7 +9,7 @@
 |---|---|---|---|
 | 27 juillet  | vert  | couscous  | Oui [x] Non [ ]  |
 
-## Hobbyhttps://github.com/ryadouelhadj/markdown-challenger/blob/master/README.md
+## Hobby
   * Basket :basketball:
   * Dormir :bed:
   * Manger :burger:
