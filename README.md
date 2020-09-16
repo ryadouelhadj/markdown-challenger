@@ -24,4 +24,4 @@
   ##### TL;DR
   
   Mes amis et moi, on avait marre des patates midi et soir, du coup on n'as fais une pierre deux coup :wink:
-  Olivier moi Sam
+  [précedent](https://github.com/DemolderOlivier/markdown-chalenge/blob/master/README.md)  [suivant](https://github.com/SamStevens23/markdown-challenge2/blob/master/README.md)
