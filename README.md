@@ -18,7 +18,7 @@ Just do it.... Later
   * Jeux video :computer:
   
   ## Vous pouvez toujours compter sur moi quand...
-  Quand je ne dort pas :cheese:
+  Quand je ne dort pas :bed:
   
   ### J'ai vécus 11ans en internat catholique, la cuisinière s'appeler Souer Rosa. Elle avait une spécialiter les pommes de terre qu'elle fesait poussée à l'arrière de l'école. Mais c'étais aussi l'endroit ou la fenètre des chambres, des grande sections donnait. Je vous laisse deviner le visage qu'elle as fais quand elle as vue son champs de pomme de terre remplis de mégot de join.
   ##### TL;DR
