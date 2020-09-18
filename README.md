@@ -12,7 +12,7 @@
 ## Hobby
   * Basket :basketball:
   * Dormir :bed:
-  * Manger :burger:
+  * Manger :hamburger:
   * Boire une bonne bière bien fraiche :beer:
   * Anime :book:
   * Jeux video :computer:
