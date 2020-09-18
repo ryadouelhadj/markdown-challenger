@@ -14,7 +14,7 @@
   * Dormir :bed:
   * Manger :hamburger:
   * Boire une bonne bière bien fraiche :beer:
-  * Anime :book:
+  * Manga :book:
   * Jeux video :computer:
   
   ## Vous pouvez toujours compter sur moi quand...
